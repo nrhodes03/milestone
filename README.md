@@ -1,5 +1,5 @@
 # milestone
-i started by reserching the topic
-i then inserted information and images
-i added links to the images 
-finally i inserted the faunt nd background
+I started by reserching the topic.
+I then inserted information and.
+I added links to the images. 
+Finally i inserted the faunt nd background.
